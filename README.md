@@ -9,3 +9,4 @@ ha chal
 abe bas tujhe chalne ko bol de tayar rehta h 
 hhhh
 chal ab dimag kharab kar diya 
+kal kitne  aje aayga
